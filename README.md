@@ -1,1 +1,0 @@
-# ariel-logos.github.io
